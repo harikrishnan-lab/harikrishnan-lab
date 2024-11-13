@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @harikrishnan
-- 👀 I’m interested in Autoamtion/ML/Webdesign
+- 👀 I’m interested in Automation/ML/Webdesign
 - 📫 How to reach me ... harikrishnansenthilvel@gmail.com
 - ⚡ Learning....
